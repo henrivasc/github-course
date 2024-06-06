@@ -6,4 +6,4 @@ Saiba mais em [willianjusten.com.br](https://willianwjusten.com.br)
 
 Gostou do curso? Quer mais? Ajude com uma doação, até um café é valido =)
 
-Dá push por favor
+Não tenho paypal pra colocar aqui então fica por isso
